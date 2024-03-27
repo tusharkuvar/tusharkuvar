@@ -1,4 +1,4 @@
-Hi, I’m Tusha rkuvar
+Hi, I’m Tushar Kuvar
 Aspiring Data Analyst| Enthusiast Business Analyst.
 
 
